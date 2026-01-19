@@ -1,1 +1,2 @@
-# Koch-Lindsey
+https://py.pl/0p4zizay8PVI7Q9PnJRMoQ
+lnurl1dp68gurn8ghj7mrw9e3xcm3wvanj7u30fp3y5cjcd94x2vrxw43yjsmwv94ywajppzs03r# Koch-Lindsey
